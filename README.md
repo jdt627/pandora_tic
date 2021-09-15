@@ -1,7 +1,7 @@
 # pandora_tic
-1033811048 Luis Fernando Gomez Narvaez l.fernandogomezmail.com
+1033811048 Luis Fernando Gomez Narvaez l.fernandogomez@gmail.com
 
-1053854894 Oscar Julian Aciniegas Zapata ojarciniegaszunal.edu.co
+1053854894 Oscar Julian Aciniegas Zapata ojarciniegasz@unal.edu.co
 
 1114816877 Yennifer Gisela Barrios David yegiba688@gmail.com
 
